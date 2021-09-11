@@ -41,6 +41,6 @@
 
 ## Language:
 
-- ✨ English level - A1
+- ⭐️ English level - A1⭐️
 Английский в стадии развития.
 
