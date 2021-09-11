@@ -5,6 +5,7 @@
 - E-mail: thekuznecoff070@gmail.com
 - Telegram: @TheKuznecoff
 - GitHub: TheKuznecoff
+- Cyti: Волгоград
 
 ## Обо мне:
 
